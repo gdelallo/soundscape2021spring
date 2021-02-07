@@ -9,3 +9,12 @@ Eagle Owl by soundmary
   
 Rural rain by jmbphilmes 
    https://freesound.org/people/jmbphilmes/sounds/200271/ - licenced under the Creative Commons Licence 
+
+Thunder and rain by dankopp 
+  https://freesound.org/people/dankopp/sounds/98733/ - licenced under the Creative Commons Licence 
+  
+  Wind chimes by mcushman1969
+    https://freesound.org/people/mcushman1969/sounds/251280/ - licenced under the Creative Commons Licence
+    
+    Two slams by craigsmith 
+    https://freesound.org/people/craigsmith/sounds/483192/ - licenced under the Creative Commons Licence
