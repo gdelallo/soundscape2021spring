@@ -18,3 +18,15 @@ Thunder and rain by dankopp
     
     Two slams by craigsmith 
     https://freesound.org/people/craigsmith/sounds/483192/ - licenced under the Creative Commons Licence
+
+Windy night trees rustling by franciscopcoutinho
+  https://freesound.org/people/franciscopcoutinho/sounds/466122/ - licenced under the Creative Commons Licence
+  
+  Book page [turn] by fellur 
+    https://freesound.org/people/fellur/sounds/429724/ - licenced under the Creative Commons Licence
+    
+  Switch by VKProductions 
+    https://freesound.org/people/VKProduktion/sounds/217498/ - licenced under the Creative Commons Licence
+    
+   Foot steps by yatoimtop 
+      https://freesound.org/people/yatoimtop/sounds/479445/ - licenced under the Creative Commons Licence
